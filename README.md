@@ -1,3 +1,3 @@
 # Save-code
 saved codes from lessons
-https://i.pinimg.com/736x/64/0a/14/640a149f61d767cc6be377e1ec5a3155.jpg
+![gojo](https://i.pinimg.com/originals/e2/6c/90/e26c90b8f8737870a09bbad47538522c.gif)
